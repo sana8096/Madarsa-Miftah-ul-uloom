@@ -1,1 +1,1 @@
-# Madarsa-Miftah-ul-uloom
+# Madarsa Miftah-ul-uloom
